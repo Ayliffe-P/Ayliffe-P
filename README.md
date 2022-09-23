@@ -1,7 +1,7 @@
-## Hi, I am Jonathan Ayliffe,
+## Welcome to my profile
 
 
-### A Game Design and Development Graduate - Cape Town, South Africa.
+### I am Jonathan Ayliffe, a Game Design and Development Graduate - Cape Town, South Africa.
 
 
 Eager to gain experience and knowledge within a work environment.
